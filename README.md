@@ -8,4 +8,3 @@ Jongwon Lee - jongwonlee00
 
 Eldin Basic - elba8705
 
-https://planningpokeronline.com/5qeW1xZNfv7O4RCd4yzp/
